@@ -72,6 +72,10 @@ Ajmal is not intended for use by individuals under the age of 18. We do not know
 
 We may update this Privacy Policy from time to time. Any changes will be posted on this page with an updated "Last Updated" date. We encourage you to review this policy periodically to stay informed about how we are protecting your information.
 
+## 9. Support
+
+If you got any questions, contact us at ajmalnow25@gmail.com
+
 
 Thank you for trusting Ajmal with your medical and cosmetic needs.
 
